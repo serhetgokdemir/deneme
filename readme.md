@@ -1,5 +1,5 @@
 # Deneme
-Serhet Gökdemir
+Serhet Gökdemir.
 
 ## Altbilgi
 instagram.com/serhet
